@@ -15,4 +15,8 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-![peach-goma-moon-cake-wallpaper-kawaii-hoshi](https://github.com/randommysticalperson/randommysticalperson/assets/169622773/2565941f-fe48-4677-ac0c-00fd6171c0d2)
+Don't do anything stupid!
+
+Here is the photo proof:
+
+![D57E558E-DA49-4712-B524-21CEDC8D668E_1_102_o](https://github.com/randommysticalperson/randommysticalperson/assets/169622773/f4db664b-328e-46f0-b9b4-0a0d49e617bd)
