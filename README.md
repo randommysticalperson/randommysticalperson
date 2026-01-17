@@ -20,3 +20,4 @@ Don't do anything stupid!
 Here is the photo proof:
 
 ![D57E558E-DA49-4712-B524-21CEDC8D668E_1_102_o](https://github.com/randommysticalperson/randommysticalperson/assets/169622773/f4db664b-328e-46f0-b9b4-0a0d49e617bd)
+<img width="1574" height="734" alt="image" src="https://github.com/user-attachments/assets/8638cfcf-cb67-4975-a22f-07e74b4169a0" />
