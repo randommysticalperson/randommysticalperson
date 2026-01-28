@@ -15,7 +15,7 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-Don't do anything stupid!
+Don't do anything wise-guys!
 
 Here is the photo proof:
 
