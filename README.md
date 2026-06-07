@@ -23,6 +23,8 @@ Don't do anything wise-guys!
 
 Here is the photo proof:
 
+If everything is perfect, nothing can grow.
+If there is no room for error, there is no room for being human.
 
 https://photos.fife.usercontent.google.com/pw/AP1GczPrqnx2oElKVNWcX-0pgfzZVviwwi2sOc-nnXivLqhFHwsQ5KGe3cFT=w426-h922-s-no-gm?authuser=0
 
