@@ -32,7 +32,7 @@ If there is no room for error, there is no room for being human.
 
 我才不相信白人女性會願意搭擅我
 
-
+有警察說我才是騙子和某個police說饅頭是毒品的一樣邏輯
 
 https://photos.fife.usercontent.google.com/pw/AP1GczPrqnx2oElKVNWcX-0pgfzZVviwwi2sOc-nnXivLqhFHwsQ5KGe3cFT=w426-h922-s-no-gm?authuser=0 
 
