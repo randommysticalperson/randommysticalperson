@@ -32,7 +32,9 @@ If there is no room for error, there is no room for being human.
 
 我才不相信白人女性會願意搭擅我
 
-https://photos.fife.usercontent.google.com/pw/AP1GczPrqnx2oElKVNWcX-0pgfzZVviwwi2sOc-nnXivLqhFHwsQ5KGe3cFT=w426-h922-s-no-gm?authuser=0
+
+
+https://photos.fife.usercontent.google.com/pw/AP1GczPrqnx2oElKVNWcX-0pgfzZVviwwi2sOc-nnXivLqhFHwsQ5KGe3cFT=w426-h922-s-no-gm?authuser=0 
 
 [Open-Source Intelligence & Digital Forensics Report]https://manus.im/share/9EiW5uCDKv1Fu8Eyh99cXE
 
