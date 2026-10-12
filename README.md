@@ -32,7 +32,7 @@ If there is no room for error, there is no room for being human.
 
 我才不相信白人女性會願意搭擅我
 
-有警察說我才是騙子和某個police說饅頭是毒品的一樣邏輯
+A police officer called me a scammer. That follows the same flawed logic as another police officer claiming that steamed buns are drugs without providing any evidence.
 
 i have not talk to her since end of august 2023. 
 
