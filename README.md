@@ -1,6 +1,5 @@
 ## Hi
 
-Pleasely archieve the repositories.
 
 ###
 
