@@ -1,6 +1,6 @@
 ## Hi
 
-
+https://ok.ru/profile/910719215462?utm_campaign=android_share&utm_content=profile
 ###
 
  I have to redepoly the apps on Manus or somewhere else. i wasnt hilding you hostage.
